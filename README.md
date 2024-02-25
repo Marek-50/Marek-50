@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Marek-50
 - 👀 I’m interested in IT
 - 🌱 I’m currently learning Scratch
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on learning
 - 📫 How to reach me: marek.dimel@gmail.com, facebook @md.567198
 - 😄 Pronouns: he
 - ⚡ Fun fact: 😉...
